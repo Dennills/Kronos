@@ -1,1 +1,1 @@
-# Kronos
+#Descarga el archivo completo
